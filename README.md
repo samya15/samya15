@@ -1,5 +1,5 @@
 # 💫 About Me:
-📚 I am currently pursuing B Tech CSE from Dr. B R Ambedkar National Institute of Technology, Jalandhar<br>🌱 I am passionate about 'learning' and exploring new ventures<br>🤝I look forward to working and collaborating on projects<br>🎈I am passionate about coding👩‍💻, music🎵 and reading📖
+📚 I am currently pursuing B Tech CSE from Dr. B R Ambedkar National Institute of Technology, Jalandhar<br>🌱 I am passionate about 'learning' and exploring new ventures<br>🤝 I look forward to working and collaborating on projects<br>🎈I am passionate about coding👩‍💻, music🎵 and reading📖
 
 
 ## 🌐 Socials:
